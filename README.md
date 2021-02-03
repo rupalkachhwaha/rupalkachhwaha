@@ -9,7 +9,7 @@
 - 👯 I’m looking to collaborate on Front-End development project
 - 🤔 I’m looking for help with Front-End development
 - 💬 Ask me about ...
-- 📫 How to reach me: [Twitter](https://twitter.com/_rupal__)
+- 📫 How to reach me: [Twitter](https://twitter.com/_rupal__) [Instagram](https://www.instagram.com/rupal_kachhwaha/)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I like to read, travel and meditate and bake!
 
