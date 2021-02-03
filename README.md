@@ -11,5 +11,5 @@
 - 💬 Ask me about HTML/CSS/Bootstrap/GitHub
 - 📫 How to reach me: [Twitter](https://twitter.com/_rupal__) [Instagram](https://www.instagram.com/rupal_kachhwaha/)
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I like to read, travel and meditate and bake!
+- ⚡ Fun fact: I like to read, travel, meditate and bake!
 
